@@ -1,1 +1,9 @@
 # ASENA-LAUNCHER-SETUP
+CREATED BY BERKER KESKIN 
+DISCORD: Berkerbaba67#6633
+
+Sadece launcher.exe yi kurmaniz yeterlidir 
+
+BILGILERINIZE ERISIM HAKKI TALEB ETMEZ TAMAMEN GUVENLIDIR.
+
+DESTEK ICIN : berker9@protonmail.com
